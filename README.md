@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @E1eZab
-- 👀 I’m interested in Learning to do cool stuff with less effort.
+- 👀 I’m working under personel projects on a small group
 - 🌱 I’m currently learning Ui/UX
 - 📫 How to reach me ->himanshurawat152000@gmail.com
 - 
